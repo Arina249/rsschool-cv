@@ -7,7 +7,7 @@ tel. +375445741668
 
 ### About myself
 
-I’m interested in IT and information technology. I am a very motivated person, I like to achieve my goals, learn and gain new knowledge. Ready to work hard and study
+I’m interested in IT and information technology. I am a very motivated person, I like to achieve my goals, learn and gain new knowledge.
 
 ### Skills
 
