@@ -2,7 +2,8 @@
 
 ### Contacts
 
-Kapystinskaya.arina.vutal.73@gmail.com  
+Kapystinskaya.arina.vutal.73@gmail.com
+kkarina800@mail.ru
 tel. +375445741668
 
 ### About myself
